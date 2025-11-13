@@ -7,4 +7,5 @@ welcome everyone how are you guys is everything fine between you both ?? bolo na
 how are y is everything is fin
 
 hello everyone how are u bro
-why u are doing thi right now baato na 
+why u are doing thi right now baato na  what to do ...
+
