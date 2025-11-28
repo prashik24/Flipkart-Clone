@@ -14,7 +14,8 @@ heloo everyone
 why u are doing thi right now baato na  what to do ...hello everyone how are u
 
 do u know me sab thik hai bro 
-if jaante to yeh na bolte aap sab mujhe  mujhe kya ho gaya hai baato yaar .. resome 
+if jaante to yeh na bolte aap sab mujhe  mujhe kya ho gaya hai baato yaar .. resome  hello everyone 
+
 
 
 
