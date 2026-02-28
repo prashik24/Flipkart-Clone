@@ -1,4 +1,4 @@
- hekko  hello heklo hello HELLO EVERYONE hello everyone how are u hello 
+ hekko  hello heklo hello HELLO EVERYONE hello everyone how are u helnhijknlo 
 every one here is my git clone project call flipkart nhelloclone
 hope you all like it like share comments and go to hell hello hello hello
 hello 
@@ -17,6 +17,7 @@ why u are doing thi right now baato na  what to do ...hello everyonennn how are 
 
 do u know me sab thik hai bro 
 if jaante to yeh na bolte aap sab mujhe  mujhe kya ho gaya hai baato yaar .. resome  hello everyone 
+
 
 
 
