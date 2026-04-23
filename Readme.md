@@ -8,7 +8,7 @@ how are you guys  hello eveyone how are you gusys  hello  hello
 gu hii hhow are you guys helloe  hellow 
 
 welcome everyone how are you guys hiile hekko san
-is everything fine between you both ?? bolo na b heemwndmwdhai why
+is everything fine between you both ?? bolo na b heemwndmwdhai wndjsndsmdnd why
 how are y is everything is fin hello uijnjk nnen ,  hello  everyone be hello bolom uello 
  hello 
 hello everyone  hello everyone how can we do hellodd bnnwbdndssknc he jhh heloo jnm llo hello vghv he is my  hii  hello hello 
