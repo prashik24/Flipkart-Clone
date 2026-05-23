@@ -8,7 +8,7 @@ fdmcndmc n hello everyobne +---
  hello everyone how are you guys 
 hii everhoo yone  hello bdjdj ello hello everyone how arre you guys  how are you all tell me 
 how are you guys  hello eveyone how are you gusys  hello  hello
-gu hii hhow are you guys helloe  hellow  hienwwmdnsn
+gu hii hhow are you guys helloe  hellow  hienwwmdnsn hello 
 ds  czs xza helllo why he'll hey. 
 welcome everyone how are you guys hiile hek hello everyone ko san hii 
 is everything fine between you both ?? bolo na b heemwndmwdhai wndjsndsmdnd why
