@@ -12,6 +12,6 @@ hello  hello  everyone hello eveyone
 helllo  gollo
  hello everyone 
 helloe e hellloe 
-hello everyone how are yopu all
+hello everyone how are yopu all hello eveyone 
 hello  everyone  hello e
 hello everyone 
