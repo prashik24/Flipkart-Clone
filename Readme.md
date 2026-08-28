@@ -3,4 +3,4 @@ hello
 hello everyone
  what can i do 
 hello ever
-hello evryone how are 
+hello evryone how are  hello 
